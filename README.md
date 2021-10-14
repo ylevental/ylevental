@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ylevental
-- 👀 I’m interested in cheetahs
+- 👀 I’m interested in Darknet, Yolo, and cheetahs
 - 🌱 I’m currently learning Python, C, and making whole wheat sourdough
 - 💞️ I’m looking to collaborate on anything interesting
 - 📫 How to reach me at yhl3051 [at] rit [dot] edu
