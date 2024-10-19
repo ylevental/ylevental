@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ylevental
-- 👀 I’m interested in Darknet, Yolo, and cheetahs
-- 🌱 I’m currently learning Python, C, and making freshly milled whole wheat bread
+- 👀 I’m interested in cheetahs
+- 🌱 I’m currently removing artificial sugar from my diet
 - 💞️ I’m looking to collaborate on anything interesting
 - 📫 How to reach me at yhl3051 [at] rit [dot] edu
 
