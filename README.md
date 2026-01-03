@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ylevental
-- 👀 I’m interested in cheetahs
+- 👀 My favorite animal is the cheetah
 - 🌱 I’m currently removing artificial sugar from my diet
 - 💞️ I’m looking to collaborate on anything interesting
 - 📫 How to reach me at yhl3051 [at] rit [dot] edu
