@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ylevental
 - 👀 My favorite animal is the cheetah
-- 🌱 I’m currently removing artificial sugar from my diet
+- 🌱 I removed artificial sugar and oil from my diet
 - 💞️ I’m looking to collaborate on anything interesting
 - 📫 How to reach me at yhl3051 [at] rit [dot] edu
 
